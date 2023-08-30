@@ -1,1 +1,1 @@
- only time you are allowed to update
+ only time i'am allowed to update
